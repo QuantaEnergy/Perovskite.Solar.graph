@@ -1,1 +1,0 @@
-- [How to fabricate perovskite solar cells (quickstart guide)](
