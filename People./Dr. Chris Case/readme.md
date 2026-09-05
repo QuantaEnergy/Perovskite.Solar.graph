@@ -1,1 +1,1 @@
-- [248: Big Perovskite Solar Panel Advances - Dr. Chris Case Interview](
+- [248: Big Perovskite Solar Panel Advances - Dr. Chris Case Interview](https://youtu.be/gbRn1j39M0E)
